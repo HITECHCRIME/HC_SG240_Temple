@@ -28,7 +28,7 @@ purify the stand in reasons, cure, it has been helpful
 see religion is not my thing but sure this shit's my temple
 
 (i) ran through all the tasks, i've been mission-taught and selfless
-former priests of cult they were enemies but reckless (taken) 
+former priests of cult they were enemies but reckless (taken) / enemies of habits
 i go ponder hidden schemes of all the timeless symbols
 i don't sleep too much these days so all my nights are endless
 
