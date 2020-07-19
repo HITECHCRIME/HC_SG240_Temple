@@ -42,6 +42,8 @@ visions come from dreams or blurs, they aren't (not) for the weak
 
 if they say we voice so radical they should call the swat / cops
 
+if they say our voice so radical they shouldn't breath
+
 ```
 
 ## Lore Notes
